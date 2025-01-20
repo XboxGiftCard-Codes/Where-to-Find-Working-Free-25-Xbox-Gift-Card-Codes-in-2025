@@ -2,7 +2,7 @@
 
 **Note: Before we dive into the article, we want to mention that this article includes an exciting *limited-time offer* that allows you to claim a free $25 Xbox Gift Card Code! Be sure to read all the way through to learn how you can take advantage of this special promotion today!**
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 In 2025, Xbox continues to be a dominant player in the gaming world. With millions of gamers enjoying their favorite titles on Xbox Series X, Series S, and Xbox One consoles, Xbox gift cards have become a sought-after commodity. These gift cards allow gamers to purchase games, downloadable content (DLC), and even subscriptions to Xbox Game Pass, among other items, directly from the Xbox Store.
 
